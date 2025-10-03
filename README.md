@@ -1,1 +1,4 @@
-# the-cold-blooded-warrior
+# The Cold-Blooded Warrior
+[Par Redice Studio, qui t'a déjà proposé <Solo Leveling>, <Omniscient Reader's Viewpoint> et <Revenge of the Iron-Blooded Sword Hound>, et bien d'autres encore ! ]
+Han Jaewoo est un joueur passionné du jeu mondialement connu « Savior Of Humanity ».Autrefois joueur invétéré, il croule aujourd'hui sous les dettes dans sa petite chambre. Son affrontement tant attendu avec le Seigneur Démon se solde par un échec inattendu. Les créanciers se rapprochent... et il ne lui reste plus que le désespoir et une détermination à toute épreuve. C'est alors qu'Aquila, l'administrateur, lui fait une proposition : « Tu ne veux pas voir ça ?
+ La véritable fin heureuse de ce jeu... » Avec un prix de 25 millions de dollars à la clé et le chemin vers la véritable fin enfin révélé, il accepte. Mais il y a un hic : il est renvoyé dans le monde du jeu avec toutes ses statistiques réduites à néant. « Merci pour le « réalisme », Aquilla... Tant pis. Je vais finir ce foutu jeu ! »
